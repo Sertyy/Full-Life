@@ -7,7 +7,7 @@ JE EZ ILLIES JAMAI <3 dédicase à toi ! 🍑🍑🍑🍑 qui fait le développe
 https://gofile.io/d/mi9iA5 = BASE A TELECHARGER AVEC LE CFG / et le resource ! 
 
 
-https://cdn.discordapp.com/attachments/719962950496157747/742037747723927572/fullifepd.sql  = SQL DE FULL LIFE ! 
+https://cdn.discordapp.com/attachments/746383744566427798/746385016530927717/cyrils59895fivem.sql = SQL DE FULL LIFE ! 
 
 
 Base by Sertyy#7777
